@@ -1,6 +1,4 @@
-**NO IMPORTANT NEWS TODAY**
 
-Here's some useful things instead
 > GTA CHEAT CODES
 > Raise Wanted Level
 > PS4: R1, R1, CIRCLE, R2, LEFT, RIGHT, LEFT, RIGHT, LEFT, RIGHT
